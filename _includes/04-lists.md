@@ -14,3 +14,7 @@ What do i like the Moste
 * konzentration
   * left
   * in my head
+
+♥️ 
+👍
+:heart:
